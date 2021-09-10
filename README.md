@@ -1,1 +1,0 @@
-# malaksoti.github.io.
